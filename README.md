@@ -29,7 +29,7 @@ Experiment, take notes, and learn how you prefer to keep your culture.
 
 1. Bring your starter to room temperature.
 1. Weigh the starter. The containers I gave out at Christmas 2015 weigh about 10 g (without lid), so be sure to account for that.
-1. Get a bowl at least 6 times the volume of the starter culture. (Starter culter is about 1 cup, so your bowl should be at least 6 cups/1.5 quarts.)
+1. Get a bowl at least 6 times the volume of the starter culture. (Starter culture is about 1 cup, so your bowl should be at least 6 cups/1.5 quarts.)
 1. Triple your starter. This should give you enough active culture to make a batch of bread, and still leave some starter for keeping/later use. It also makes for some very easy math! ;) You want to add equal parts *bread flour* and warm (90-100 degrees F) water for feeding. To triple the starter, measure out the same weight of flour as your starter. Add the flour to your bowl. Then measure out the same weight again in warm water into a measuring cup. (Metric system to the rescue here! A gram of water is 1 milliliter.)
 1. Mix the water into the flour, a little at a time.
 1. After all the water has been incorporated into the flour, add the starter to the bowl and mix the culture and feeder.
